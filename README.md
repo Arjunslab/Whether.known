@@ -1,1 +1,4 @@
 # Whether.known
+HEY PEOPLE THIS IS JUST A 
+# WHETHER APP 
+JUST FOR FUN 
